@@ -8,4 +8,4 @@ I'm like MATHEMATICS and Coding.
 I want to get a high-pacakage job.
 My hobby is watching movies,playing cricket,travelling,etc...
 I want to enjoy my life.
-My best part of life (till now) is when i was in GRADE 10,11,12
+My best part of life (till now) is my school life.
